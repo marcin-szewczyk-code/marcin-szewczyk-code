@@ -1,1 +1,1 @@
-Researcher · Lecturer · Speaker & Trainer · Numerical Simulation Specialist · Project Leader
+Researcher 🔸 Lecturer 🔸 Speaker & Trainer 🔸 Numerical Simulation Specialist 🔸 Project Leader
