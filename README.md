@@ -1,3 +1,4 @@
-Researcher 🔸 Numerical Simulation Specialist 🔸 Lecturer 🔸 Speaker & Trainer 🔸 Project Leader
+Researcher 🔸 Numerical Simulation Specialist 🔸 Lecturer 🔸 Trainer
 
-🔗 Blog: [https://blog.marcinszewczyk.net](https://blog.marcinszewczyk.net)
+🔗 [https://marcinszewczyk.net](https://marcinszewczyk.net)
+🔗 [https://blog.marcinszewczyk.net](https://blog.marcinszewczyk.net)
